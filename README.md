@@ -7,7 +7,7 @@
 <div align='right'>
  ## What I want to do next :thinking:<br>
    - Unlock the secret to the universe :rofl:  
-<p><em>Software Engineer at <a href="http://www.cleartax.in">ClearTax</a><img src="https://media.giphy.com/media/WUlplcMpOCEmTGBtBW/giphy.gif" width="300"></em></p><br>
+<p><em>Software Engineer at <a href="http://www.cleartax.in">Developer(`;`)</a><img src="https://media.giphy.com/media/WUlplcMpOCEmTGBtBW/giphy.gif" width="300"></em></p><br>
 </div>
 
 <h2> 𝐇𝐞𝐥𝐥𝐨 𝐭𝐡𝐞𝐫𝐞, People <𝚌𝚘𝚍𝚎𝚛𝚜/>! 
